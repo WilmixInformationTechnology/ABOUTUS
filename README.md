@@ -2,7 +2,10 @@
 ==========
 WilmixInformationTechnology  (WIT)   is  the  Headoffice   of  EXTERNAL ADVANCED  BUSINESS  started by wilmix jemin  j.
 
-Wilmix Information Technology is otherwise known as WIT is a product based company started in Dec 16 2016. WIT is a part of WSIT field. Wilmix Information Technology(WIT) is focused on Advanced Software Development, WebDesign, Developing utilities, WebPublishing ,Cloud computing , and Client Services. WIT provides information technology, software engineering , research , and Quality Analysis. WIT is one of Best Research based company in year 2015
+Wilmix Information Technology is otherwise known as WIT is a product based company started in Dec 16 2016. WIT is a part of WSIT field. Wilmix Information Technology(WIT) is focused on Advanced Software Development, WebDesign, Developing utilities, WebPublishing ,Cloud computing , and Client Services. WIT provides information technology, software engineering , research , and Quality Analysis. WIT is one of Best Research based company in year 2016.
+
+
+Note:  WIT   is  the   Most  Powerful  Organization   in  2016   History.
 
 OUR HUMAN POLICY
 ================
